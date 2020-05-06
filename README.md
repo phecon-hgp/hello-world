@@ -8,7 +8,7 @@ Fortunately Alistair managed to be appointed king despite his brother's claims t
 Suddenly, a man burst into the tavern, gasping, and shouted:
 "The king is dead!"
 
-Silence befell the place. Slowly, all eyes turned to you and hands approached and unsheathed more blades than the owner allowed inside the estabilishment. You only had time for one thought:
+Silence befell the place. Slowly, all eyes turned to you and hands unsheathed more blades than the owner allowed inside the estabilishment. You only had time for one thought:
 
 "Oh, shit..."
 
